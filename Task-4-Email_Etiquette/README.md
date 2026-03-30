@@ -1,4 +1,4 @@
-> Task 4: Drafting a professional email with proper etiquettes
+-> Task 4: Drafting a professional email with proper etiquettes
 
 It includes both Part A and Part B of task 4
 
